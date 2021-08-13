@@ -14,7 +14,7 @@
 * Database where the project data is stored.
 
 #### Connect me via
-[My Facebook](https://faceboook.com/nhvanh2111)  
+[My Facebook](https://www.facebook.com/profile.php?id=100006399702131)  
 [My Email](mailto: nhvanh2111@gmail.com)
 
 © 2021 nhvanh2111
